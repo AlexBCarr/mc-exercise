@@ -2,3 +2,12 @@
 Why do programmers prefer dark mode?
   Because light attracts bugs.
 
+
+
+
+New features for Ted and Alice 
+What do you call it when Batman leaves church early....
+
+....Christian Bale.
+
+
